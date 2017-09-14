@@ -31,4 +31,10 @@ Depato 宣布会在下一个新年吃‘おせち料理’。这一年，这里�
 本月下旬开始可以在任意百货商店和网上预约节年菜。调查公司称每年的节年菜的销售额都在增加，今年正月份的销售额为600亿日元。
 
 
-
+### 2017-09-14
+#### 原文
+"Fire alarms in the house: 'Check if they sound correctly'"
+Fire alarms are an appliance that sense smoke and heat and produce a sound to notify (you) of a fire. It has been over 10 years since it became a law (that you) are required to have one installed in the house.
+According to the National Life Center, there have been 141 fire alarm incidents in the past 5 years, (with reports) such as "the sound won't stop". (<--iffy about this sentence) In an online questionnaire, 13% of people answered that "Although there was a fire, the fire alarm did not go off" or "The fire alarm sounded even though there was no fire".
+The Fire and Disaster Management Agency said that in 91 fire cases last year, the fire alarms did not sound properly. It appeared that the causes were dead batteries and debris getting into (the fire alarm units).
+The National Life Center says, "Fire alarms can easily break after about 10 years, (so) please check the fire alarms once in a while to ensure they sound correctly when there is a fire."
