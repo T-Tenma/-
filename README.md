@@ -38,3 +38,13 @@ Fire alarms are an appliance that sense smoke and heat and produce a sound to no
 According to the National Life Center, there have been 141 fire alarm incidents in the past 5 years, (with reports) such as "the sound won't stop". (<--iffy about this sentence) In an online questionnaire, 13% of people answered that "Although there was a fire, the fire alarm did not go off" or "The fire alarm sounded even though there was no fire".
 The Fire and Disaster Management Agency said that in 91 fire cases last year, the fire alarms did not sound properly. It appeared that the causes were dead batteries and debris getting into (the fire alarm units).
 The National Life Center says, "Fire alarms can easily break after about 10 years, (so) please check the fire alarms once in a while to ensure they sound correctly when there is a fire."
+
+#### 译文
+"在房间里的火灾报警器：检查一下他们是否听起来是正确的"
+火灾报警器是一种能感知烟雾和热量的装置，它能发出一种声音来通知(你)火灾。从它成为一个要求你必须安装一个在房子里的法律已经超过10年了。
+据国家生活中心报道，在过去的5年里发生了141起火灾报警事件(有报道)，比如声音不会停止。(<--不确定这句话)在一个在线调查问卷中，13%的人回答说“尽管发生了火灾，但是警报并没有响”或者“尽管警报响了，但是并没有发生火灾”。
+火灾和灾害管理局说在去年的91一起火灾中，火灾警报的声音不太恰当。发生此事的原因是废弃电池及碎片掉落进入(火灾报警器)。
+国家生活中心说，“火灾报警器在大概10年后就很容易故障，（因此）请偶尔检查一下火灾报警器以确保当火灾发生时能正确的报警。”
+
+
+
