@@ -62,3 +62,13 @@ Apple has released a new iPhone almost every year since it's initial release in 
 
 The only daughter of the Hu family. She was betrothed to Wu Pin, but the marriage didn't go through due to Du Mingli's meddling. Hu Yongmei has a deep hatred towards Zhou Ying, believing that Zhou Ying forced her father to commit guilt for his part in the failed business collaboration.
 
+
+#### 译文
+苹果公司推出新款iPhone
+自从2007年苹果公司首次发布iPhone已经10年了。在9月12日，苹果宣布3款新iPhone，包括十周年的“iPhone X”。
+iPhone X 不在有一直以来在屏幕下方的home键了。取代按下home键的方法是从屏幕底部向上滑动手指。为了确保其他人不能使用你的手机，你可以使用相机的人脸识别来解锁它。iPhone将在11月3日开始出售，售价超过100，000（日元？）（大约1000美元）。
+从2007年第一次发布开始，苹果几乎每年都会发布一款新的iPHone，它在世界上的普及度越来越高。在日本，大约一般的智能手机用户拥有iPhone。
+
+胡家唯一的女儿。他被许配给吴品？但是因为杜明宇的干预婚礼没有正常完成，胡勇梅非常憎恨周英，相信周英强迫他的父亲承担在商业合作中他那部分失败。
+
+
