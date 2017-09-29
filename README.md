@@ -72,3 +72,17 @@ iPhone X 不在有一直以来在屏幕下方的home键了。取代按下home键
 胡家唯一的女儿。他被许配给吴品？但是因为杜明宇的干预婚礼没有正常完成，胡勇梅非常憎恨周英，相信周英强迫他的父亲承担在商业合作中他那部分失败。
 
 
+### 2017-09-29
+#### 原文
+Prices rise as bad weather continues
+In Northeast Japan, Easter Hokkaido and Kanto, rainy and cloudy days, along with low temperatures have continued since late July. For this reason cucumber, tomato and other vegetable harvest are running late.
+The Ministry of Agriculture, Forestry and Fisheries (MAFF) announced the prices of five vegetables after checking with 470 grocery stores.
+Cucumbers rose by 19 percent week over week. Tomatoes were up 12 percent. Both were above the yearly average by over 10 percent. Cabbage is up 26 percent week over week and 4 percent over the yearly average.
+Lettuce and onions were up compared to the week prior but remain lower than the annual average.
+MAFF expects prices to remain high until late August even if the weather improves.
+
+#### read material
+Autumn, wherever it is, always has something to recommend itself. In North China, however, it is particularly limpid, serene and melancholy.
+ 
+To enjoy its atmosphere to the full in the onetime capital, I have, therefore, made light of travelling a long distance from Hangzhou to Qingdao, and thence to Peiping.
+
