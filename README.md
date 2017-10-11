@@ -81,6 +81,16 @@ Cucumbers rose by 19 percent week over week. Tomatoes were up 12 percent. Both w
 Lettuce and onions were up compared to the week prior but remain lower than the annual average.
 MAFF expects prices to remain high until late August even if the weather improves.
 
+### 译文
+由于天气持续恶化，物价上涨
+在日本东北部，复活节(?)北海道和关东，多云的雨天，以及七月下旬以来的持续低温。因此黄瓜，土豆和其他蔬菜收获缓慢。
+农业，林业和渔业部（MAFF）在检查了470家杂货铺后公布了5中蔬菜的价格。
+黄瓜每周上涨19%。土豆上涨了12%。两者都超过了年平均的10%。白菜每周上涨26%并超过年平均4%。
+生菜和洋葱的价格相对前一周上涨，但是仍然比年平均低。
+MAFF预计即使天气好转，价格会在八月下旬仍然保持在高位。
+
+
+
 #### read material
 Autumn, wherever it is, always has something to recommend itself. In North China, however, it is particularly limpid, serene and melancholy.
  
