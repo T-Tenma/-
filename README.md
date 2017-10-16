@@ -81,7 +81,7 @@ Cucumbers rose by 19 percent week over week. Tomatoes were up 12 percent. Both w
 Lettuce and onions were up compared to the week prior but remain lower than the annual average.
 MAFF expects prices to remain high until late August even if the weather improves.
 
-### 译文
+#### 译文
 由于天气持续恶化，物价上涨
 在日本东北部，复活节(?)北海道和关东，多云的雨天，以及七月下旬以来的持续低温。因此黄瓜，土豆和其他蔬菜收获缓慢。
 农业，林业和渔业部（MAFF）在检查了470家杂货铺后公布了5中蔬菜的价格。
@@ -91,8 +91,22 @@ MAFF预计即使天气好转，价格会在八月下旬仍然保持在高位。
 
 
 
-#### read material
+#### 阅读材料
 Autumn, wherever it is, always has something to recommend itself. In North China, however, it is particularly limpid, serene and melancholy.
  
 To enjoy its atmosphere to the full in the onetime capital, I have, therefore, made light of travelling a long distance from Hangzhou to Qingdao, and thence to Peiping.
 
+### 2017-10-16
+#### 原文
+The only survivor of a shipwreck was washed up on a small, uninhabited island. He prayed feverishly for God to rescue him, and every day he scanned the horizon for help, but none seemed forthcoming. 
+Exhausted, he eventually managed to build a little hut out of driftwood to protect him from the elements, and to store his few possessions. 
+But then one day, after scavenging for food, he arrived home to find his little hut in flames, the smoke rolling up to the sky.
+The worst had happened; everything was lost. He was stunned with grief and anger.  "God how could you do this to me!" he cried. 
+Early the next day, however, he was awakened by the sound of a ship that was approaching the island. It had come to rescue him. "How did you know I was here?"  asked the weary man of his rescuers. "We saw your smoke signal," they replied. 
+It is easy to get discouraged when things are going bad. But we shouldn't lose heart, because God is at work in our lives, even in the midst of pain and suffering. 
+Remember, next time your little hut is burning to the ground it just may be a smoke signal that summons the grace of God. For all the negative things we have to say to ourselves, God has a positive answer for it
+
+####阅读材料
+
+"Just that," said the fox. "To me, you are still nothing more than a little boy who is just like a hundred thousand other little boys. And I have no need of you. And you, on your part, have no need of me. To you, I am nothing more than a fox like a hundred thousand other foxes. But if you tame me, then we shall need each other. To me, you will be unique in all the world. To you, I shall be unique in all the world..."
+“一点不错，”狐狸说。“对我来说，你还只是一个小男孩，就像其他千万个小男孩一样。我不需要你。你也同样用不着我。对你来说，我也不过是一只狐狸，和其他千万只狐狸一样。但是，如果你驯服了我，我们就互相不可缺少了。对我来说，你就是世界上唯一的了；我对你来说，也是世界上唯一的了。”
