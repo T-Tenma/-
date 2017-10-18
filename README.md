@@ -93,18 +93,27 @@ MAFF预计即使天气好转，价格会在八月下旬仍然保持在高位。
 
 #### 阅读材料
 Autumn, wherever it is, always has something to recommend itself. In North China, however, it is particularly limpid, serene and melancholy.
- 
+
 To enjoy its atmosphere to the full in the onetime capital, I have, therefore, made light of travelling a long distance from Hangzhou to Qingdao, and thence to Peiping.
 
 ### 2017-10-16
 #### 原文
-The only survivor of a shipwreck was washed up on a small, uninhabited island. He prayed feverishly for God to rescue him, and every day he scanned the horizon for help, but none seemed forthcoming. 
-Exhausted, he eventually managed to build a little hut out of driftwood to protect him from the elements, and to store his few possessions. 
+The only survivor of a shipwreck was washed up on a small uninhabited island. He prayed feverishly for God to rescue him, and every day he scanned the horizon for help, but none seemed forthcoming.
+Exhausted, he eventually managed to build a little hut out of driftwood to protect him from the elements, and to store his few possessions.
 But then one day, after scavenging for food, he arrived home to find his little hut in flames, the smoke rolling up to the sky.
-The worst had happened; everything was lost. He was stunned with grief and anger.  "God how could you do this to me!" he cried. 
-Early the next day, however, he was awakened by the sound of a ship that was approaching the island. It had come to rescue him. "How did you know I was here?"  asked the weary man of his rescuers. "We saw your smoke signal," they replied. 
-It is easy to get discouraged when things are going bad. But we shouldn't lose heart, because God is at work in our lives, even in the midst of pain and suffering. 
-Remember, next time your little hut is burning to the ground it just may be a smoke signal that summons the grace of God. For all the negative things we have to say to ourselves, God has a positive answer for it
+The worst had happened; everything was lost. He was stunned with grief and anger.  "God how could you do this to me!" he cried.
+Early the next day, however, he was awakened by the sound of a ship that was approaching the island. It had come to rescue him. "How did you know I was here?"  asked the weary man of his rescuers. "We saw your smoke signal," they replied.
+It is easy to get discouraged when things are going bad. But we shouldn't lose heart, because God is at work in our lives, even in the midst of pain and suffering.
+Remember, next time your little hut is burning to the ground it just may be a smoke signal that summons the grace of God. For all the negative things we have to say to ourselves, God has a positive answer for it.
+
+#### 译文
+在海难中唯一的幸存者被冲上了一个无人居住的小岛上。他狂热的祈祷上帝拯救他，每天他都在地平线上寻求帮助，但似乎没有人来。最终，他精疲力尽的以浮木建立了一个小屋用以从恶劣的天气中保护他，并且存储他仅有的财产。
+但是有一天，在寻找食物后，他发现他的小屋着火了，浓烟滚滚升上天空。
+最坏的事情发生了，一切都失去了。他因为悲伤和愤怒都惊呆了。他哭着说“上帝，你怎么能这样对我！”。
+然而，第二天早上，他被靠近小岛的轮船的声音吵醒，这艘船是来救他的。“你怎么知道我在这里？”那个疲惫的人问他的营救者。“我们看到了你的烟雾信号”他们回答。
+事情变糟时很容易感到气馁。即使是在痛苦和苦难中，但是我们不应该失去信心，因为上帝在我们的生活中工作。
+记住，下次你的小屋被烧成灰烬的时候，这也许只是一个烟的信号，召唤上帝的恩典。对于所有对于我们来说是消极的事情，上帝都有一个积极的答案。
+
 
 ####阅读材料
 
