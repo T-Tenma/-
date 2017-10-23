@@ -115,7 +115,37 @@ Remember, next time your little hut is burning to the ground it just may be a sm
 记住，下次你的小屋被烧成灰烬的时候，这也许只是一个烟的信号，召唤上帝的恩典。对于所有对于我们来说是消极的事情，上帝都有一个积极的答案。
 
 
-####阅读材料
+#### 阅读材料
 
 "Just that," said the fox. "To me, you are still nothing more than a little boy who is just like a hundred thousand other little boys. And I have no need of you. And you, on your part, have no need of me. To you, I am nothing more than a fox like a hundred thousand other foxes. But if you tame me, then we shall need each other. To me, you will be unique in all the world. To you, I shall be unique in all the world..."
 “一点不错，”狐狸说。“对我来说，你还只是一个小男孩，就像其他千万个小男孩一样。我不需要你。你也同样用不着我。对你来说，我也不过是一只狐狸，和其他千万只狐狸一样。但是，如果你驯服了我，我们就互相不可缺少了。对我来说，你就是世界上唯一的了；我对你来说，也是世界上唯一的了。”
+
+
+### 2017-10-23
+#### 原文
+What makes you respect another person?
+
+1.They Dress Well - I’m not someone to judge someone for a brand they wear, but I do take notice of a guy or gal who consistently looks fly. My dad used to tell me to dress for the job I desire, not the job I have. I think that applies here.
+
+2.They’re in Good Shape - It’s really difficult to hit the gym or go for a run following a long day at work. That’s why I have profound respect for individuals who are disciplined and keep themselves in great shape.
+
+3.They Smile/Greet Strangers - Strangers can quickly become acquaintances, friends and potentially even more. I respect people who go out of their way to acknowledge strangers in a positive manner!
+
+4.They’re Honest - I have profound respect for those people who I can tell something to and trust that they won’t pass that information on without my consent.
+
+5.They Work Their Tail Off - There are people with super high motors that seem to constantly be driven to achieve something new. These individuals receive tremendous respect from me.
+
+6.They Pay it Forward - I respect those who have been blessed financially and contribute a good portion of their wealth back into society.
+
+7.The Way They Treat Their Significant Other -When I see an older gentleman hold the door for his wife or pull out the chair for her when sitting down, it warms my heart and I immediately respect him on a whole new level.
+
+8.The Professional Position They Hold - If I meet the General Manager of the Houston Astros, I’m going to have respect for him because I’ve got a hunch of everything he’s gone through to get to where he’s at today.
+
+9.They Say Something Unpopular Because it Needs to be Said - I’m sure many of you have that friend or family member that never hesitates to say something, despite the awkwardness. I love these people.
+
+10.The way they treat service staff - So many people treat service industry workers like lesser humans. As if what they do is meaningless and mindless. And that could not be further from the truth. We all should be cognizant of the way we treat the lady working the cash register or the young man bagging our groceries…because it says a lot more about who we are than who they are!
+
+#### 阅读材料
+“Those also are actions too often neglected,” said the fox. “They are what make one day different from other days, one hour from other hours. There is a rite, for example, among my hunters. Every Thursday they dance with the village girls. So Thursday is a wonderful day for me! I can take a walk as far as the vineyards. But if the hunters danced at just any time, every day would be like every other day, and I should never have any vacation at all.”
+
+“这也是一种早已被人忘却了的事。”狐狸说，“它就是使某一天与其他日子不同，使某一时刻与其它时刻不同。比如说，我的那些猎人就有一种仪式。他们每星期四都和村子里的姑娘们跳舞。于是，星期四就是一个美好了日子！我可以一直散步到葡萄园去。如果猎人们什么时候都跳舞，天天又全都一样，那么我也就没有假日了。”
