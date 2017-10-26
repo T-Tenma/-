@@ -147,27 +147,27 @@ Remember, next time your little hut is burning to the ground it just may be a sm
 ### 2017-10-23
 #### 原文
 What makes you respect another person?
-
+什么使你尊重他人？
 1.They Dress Well - I’m not someone to judge someone for a brand they wear, but I do take notice of a guy or gal who consistently looks fly. My dad used to tell me to dress for the job I desire, not the job I have. I think that applies here.
-
+他们打扮的好——我不是以穿着评价他人的人，但是一个男的或者一个女的总是看起来像苍蝇会引起我的注意。我父亲曾告诉我为我想要的工作打扮，而不是为我拥有的工作打扮。我认为这里非常适用。
 2.They’re in Good Shape - It’s really difficult to hit the gym or go for a run following a long day at work. That’s why I have profound respect for individuals who are disciplined and keep themselves in great shape.
-
+他们形象很好——在漫长的一天工作后，去健身房锻炼身体或者进行一次跑步是非常困难的。这就是为什么我对有规律保持自己形象的人具有深深的敬意。
 3.They Smile/Greet Strangers - Strangers can quickly become acquaintances, friends and potentially even more. I respect people who go out of their way to acknowledge strangers in a positive manner!
-
+他们对陌生人微笑/问候——陌生人可以很快的成为熟人、朋友甚至更多。我尊敬那些那些出门在外以积极态度去认识陌生人的人。
 4.They’re Honest - I have profound respect for those people who I can tell something to and trust that they won’t pass that information on without my consent.
-
+他们的诚实——我深深尊重那些我能告诉他们并相信他们不会在我未征得我同意的情况下通过这些信息的人。
 5.They Work Their Tail Off - There are people with super high motors that seem to constantly be driven to achieve something new. These individuals receive tremendous respect from me.
-
+他们努力工作——有些人拥有超高的马达，似乎总是被驱使着去完成一些新的事情。这些人受到我的极大尊重。
 6.They Pay it Forward - I respect those who have been blessed financially and contribute a good portion of their wealth back into society.
-
+他们让爱传出去——我尊重那些取的巨大财富并将大部分回馈社会的人。
 7.The Way They Treat Their Significant Other -When I see an older gentleman hold the door for his wife or pull out the chair for her when sitting down, it warms my heart and I immediately respect him on a whole new level.
-
+他们对待自己的另一半的方式——当我看到一位年长的绅士为妻子开门，或是当她坐下来为她拉出椅子时，它温暖了我的心，我立刻对他的尊敬上升到一个新的阶段。
 8.The Professional Position They Hold - If I meet the General Manager of the Houston Astros, I’m going to have respect for him because I’ve got a hunch of everything he’s gone through to get to where he’s at today.
-
+他们所持的职业立场——如果我遇到了休斯顿太空人队的总经理，我将会尊重他，因为我有一种预感，他所经历的一切才到达他现在的位置。
 9.They Say Something Unpopular Because it Needs to be Said - I’m sure many of you have that friend or family member that never hesitates to say something, despite the awkwardness. I love these people.
-
+他们说一些不受欢迎的东西，因为它需要被说出来——我相信很多人都有这样的朋友或家人，他们从不犹豫地说些什么，尽管他们很尴尬。我爱这些人。
 10.The way they treat service staff - So many people treat service industry workers like lesser humans. As if what they do is meaningless and mindless. And that could not be further from the truth. We all should be cognizant of the way we treat the lady working the cash register or the young man bagging our groceries…because it says a lot more about who we are than who they are!
-
+他们对待服务人员的方式——很对人对待服务人员像对待下等人。好像他们所做的一切都毫无意思。这不可能是真的。我们都应该意识到我们对待收银员或者装货的年轻人……因为这更能说明我们是谁，而不是他们是谁！
 #### 阅读材料
 “Those also are actions too often neglected,” said the fox. “They are what make one day different from other days, one hour from other hours. There is a rite, for example, among my hunters. Every Thursday they dance with the village girls. So Thursday is a wonderful day for me! I can take a walk as far as the vineyards. But if the hunters danced at just any time, every day would be like every other day, and I should never have any vacation at all.”
 
