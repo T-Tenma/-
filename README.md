@@ -168,7 +168,122 @@ What makes you respect another person?
 他们说一些不受欢迎的东西，因为它需要被说出来——我相信很多人都有这样的朋友或家人，他们从不犹豫地说些什么，尽管他们很尴尬。我爱这些人。
 10.The way they treat service staff - So many people treat service industry workers like lesser humans. As if what they do is meaningless and mindless. And that could not be further from the truth. We all should be cognizant of the way we treat the lady working the cash register or the young man bagging our groceries…because it says a lot more about who we are than who they are!
 他们对待服务人员的方式——很对人对待服务人员像对待下等人。好像他们所做的一切都毫无意思。这不可能是真的。我们都应该意识到我们对待收银员或者装货的年轻人……因为这更能说明我们是谁，而不是他们是谁！
+
+
+#### 参考译文
+What makes you respect another person?
+
+什么品质能赢得你的尊重？
+
+
+1.They Dress Well - I’m not someone to judge someone for a brand they wear, but I do take notice of a guy or gal who consistently looks fly. My dad used to tell me to dress for the job I desire, not the job I have. I think that applies here.
+
+1.穿着得体——我并非靠衣服的牌子看人，但的确会特别注意总是穿着时髦的男孩女孩。我爸爸过去告诉我：穿衣服，是为了得到你想得到的工作，而不是为现有的工作穿的，我觉得很有道理。
+
+
+2.They’re in Good Shape - It’s really difficult to hit the gym or go for a run following a long day at work. That’s why I have profound respect for individuals who are disciplined and keep themselves in great shape.
+
+2.身材好——一天长时间的工作之后很难再坚持去健身房或跑步，这就是为什么我十分尊重自律而且身材保持得好的人。
+
+
+3.They Smile/Greet Strangers - Strangers can quickly become acquaintances, friends and potentially even more. I respect people who go out of their way to acknowledge strangers in a positive manner!
+
+3.微笑/跟陌生人打招呼——陌生人很快就能变成熟人、朋友，甚至关系还能更进一步。我尊重那些不嫌麻烦、积极认识陌生人的人。
+
+
+4.They’re Honest - I have profound respect for those people who I can tell something to and trust that they won’t pass that information on without my consent.
+
+4.诚实——我特别尊重那些我能跟他们说些事、而且确定他们不会未经我允许就到处乱说的人。
+
+
+5.They Work Their Tail Off - There are people with super high motors that seem to constantly be driven to achieve something new. These individuals receive tremendous respect from me.
+
+5.拼命工作——有些人像打了鸡血一样，好像不断被驱使着取得新的成就，这些人受到我极大的尊重。
+
+
+6.They Pay it Forward - I respect those who have been blessed financially and contribute a good portion of their wealth back into society.
+
+6.传递爱——我尊重那些运气好、很有钱、而且还会把一部分财富回馈给社会的人。
+
+
+7.The Way They Treat Their Significant Other -When I see an older gentleman hold the door for his wife or pull out the chair for her when sitting down, it warms my heart and I immediately respect him on a whole new level.
+
+7.对待爱人的方式——当我看到一位老先生为妻子开着门，或落座时为她拉出椅子，我的心感觉很温暖，对他的敬意立刻加深了一层。
+
+
+8.The Professional Position They Hold - If I meet the General Manager of the Houston Astros, I’m going to have respect for him because I’ve got a hunch of everything he’s gone through to get to where he’s at today.
+
+8.所在职位——如果我见到休斯顿太空人队的总经理，我会很尊重他，因为我能感觉到他经历了很多才到了今天的位置。
+
+
+9.They Say Something Unpopular Because it Needs to be Said - I’m sure many of you have that friend or family member that never hesitates to say something, despite the awkwardness. I love these people.
+
+9.必要时会说不受欢迎的话——我确定很多人都有这样的朋友或家人，他们心直口快，即使有时难免尴尬，但我喜欢这样的人。
+
+
+10.The way they treat service staff - So many people treat service industry workers like lesser humans. As if what they do is meaningless and mindless. And that could not be further from the truth. We all should be cognizant of the way we treat the lady working the cash register or the young man bagging our groceries…because it says a lot more about who we are than who they are!
+
+10.对待服务员的态度——很多人觉得服务行业的人低人一等，好像他们所做的都是无意义的不用动脑的工作，这种态度真是大错特错。我们都应该注意自己对待收银台的女士、或者帮我们把东西装袋的年轻小伙的态度，因为我们的态度并非是在体现他们的人品，而是在很大程度上说明了我们自己是什么样的人。
+
+
+
 #### 阅读材料
 “Those also are actions too often neglected,” said the fox. “They are what make one day different from other days, one hour from other hours. There is a rite, for example, among my hunters. Every Thursday they dance with the village girls. So Thursday is a wonderful day for me! I can take a walk as far as the vineyards. But if the hunters danced at just any time, every day would be like every other day, and I should never have any vacation at all.”
 
 “这也是一种早已被人忘却了的事。”狐狸说，“它就是使某一天与其他日子不同，使某一时刻与其它时刻不同。比如说，我的那些猎人就有一种仪式。他们每星期四都和村子里的姑娘们跳舞。于是，星期四就是一个美好了日子！我可以一直散步到葡萄园去。如果猎人们什么时候都跳舞，天天又全都一样，那么我也就没有假日了。”
+
+
+
+### 2017-10-31
+#### 原文
+That winter was extremely cold.
+The damp rain mantled the whole city.　
+Gray sky, and no sunshine.
+Inexplicably depressed.　
+Sometimes, tears just can't help trickling down
+while walking on the street…
+In the same apartment building…
+She lives in an old apartment in the city suburb.　
+Every time, wherever she goes, she is used to turning left.
+He lives in an old apartment in the city suburb.
+Every time, wherever he goes, he is used to turning right.
+
+Oct.15. The sun is covered occasionally by the cloud. Bright followed by dark inside. 
+He never meets her.
+
+Oct.28. Sunshine.
+He is not doing well these days.
+Sometimes, he goes to the restaurant to make some tips by playing his violin.
+
+Nov.7. Cloudy and wet, a thin layer of sadness of winter.
+He likes wandering outside when he does not practice his violin.
+Gives food to the doves in the park, always sits idly for the whole afternoon.
+
+Nov.11. Afternoon, chilly wind.
+Sometimes, he feels empty and weak.　
+
+Nov.19. Winter sunshine lengthens the shadow.
+She is used to walking on the left.　
+He is used to walking on the right.
+They never meet.
+
+Nov.23. Dark early.
+She is translating a sad novel,
+which makes her always feel the whole world is sad and gray.
+
+Dec.2. The thick clouds float slowly at the corner of the sky.
+When free, she likes to have a coffee downtown,　
+walk along the street, watch the people pass by, talk to the homeless cat.　
+
+Dec. 10. Sunshine. Very damp in the room.　
+Sometimes, she feels life is boring.　
+
+Dec.17. Sunny.
+She is used to riding on the left. He is used to riding on the right. They never meet.    
+
+Dec.20. Cloudy to rain.
+Like most people in the city, they know nothing about each other while living together…　　
+However, there always are some coincidences in people's lives, two parallel lines might join some day.
+　　
+Dec.22. Cloudy with sunshine periods. The thick cloud still covers the top of the hills.
+Then, one day, they meet in front of the fountain in the park.
