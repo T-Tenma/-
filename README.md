@@ -247,43 +247,68 @@ She lives in an old apartment in the city suburb.　
 Every time, wherever she goes, she is used to turning left.
 He lives in an old apartment in the city suburb.
 Every time, wherever he goes, he is used to turning right.
-
+那个冬天特别的冷。
+潮湿的雨水笼罩着整个城市。
+灰色的天空，没有阳光。
+莫名的消沉。
+有时，走在路上，眼泪禁不住流下来……
+在同一栋公寓楼中……
+她住在城郊的一栋老公寓里。
+每一次，无论她去什么地方，她都习惯向左转。
+他住在城郊的一栋老公寓里
+每一次，无论他去什么地方，他都习惯向右转。
 Oct.15. The sun is covered occasionally by the cloud. Bright followed by dark inside. 
 He never meets her.
-
+10月15。太阳偶尔被云朵遮住。忽明忽暗。他从未遇见她。
 Oct.28. Sunshine.
 He is not doing well these days.
 Sometimes, he goes to the restaurant to make some tips by playing his violin.
-
+10月28.晴。
+他这几天不太好。
+有时，他会到饭店拉小提琴来赚一点小费。
 Nov.7. Cloudy and wet, a thin layer of sadness of winter.
 He likes wandering outside when he does not practice his violin.
 Gives food to the doves in the park, always sits idly for the whole afternoon.
-
+11月7。又阴又湿，一层淡淡的冬天的忧伤。
+当他没有练小提琴时，他喜欢在外面徘徊。
+给公园里的鸽子喂食，总是无所事事的坐一下午。
 Nov.11. Afternoon, chilly wind.
 Sometimes, he feels empty and weak.　
-
+11月11.下午，寒冷的风。
+有时他感觉空虚和虚弱。
 Nov.19. Winter sunshine lengthens the shadow.
 She is used to walking on the left.　
 He is used to walking on the right.
 They never meet.
-
+11月19.冬天的阳光把阴影拉长。
+她习惯于在左边走路。
+他习惯于在右边走路。
+他们从未相见。
 Nov.23. Dark early.
 She is translating a sad novel,
 which makes her always feel the whole world is sad and gray.
-
+11月23.黑的比较早。
+她正在翻译一本悲伤的小说，这本小说总是让她感觉整个世界都是悲伤和灰暗。
 Dec.2. The thick clouds float slowly at the corner of the sky.
 When free, she likes to have a coffee downtown,　
 walk along the street, watch the people pass by, talk to the homeless cat.　
-
+12月2.厚厚的云层漂浮在天空的角落。
+当空闲的时候，她喜欢在市区喝咖啡，一个人散步，看人们从身边走过，和无家可归的小猫说说话。
 Dec. 10. Sunshine. Very damp in the room.　
 Sometimes, she feels life is boring.　
-
+12月10.晴，房间里非常潮湿。
+有时，她感觉生活非常无聊。
 Dec.17. Sunny.
 She is used to riding on the left. He is used to riding on the right. They never meet.    
-
+12月17.阳光明媚。
+她习惯于在左边骑行，他习惯于在右边骑行。他们从未相见。
 Dec.20. Cloudy to rain.
 Like most people in the city, they know nothing about each other while living together…　　
 However, there always are some coincidences in people's lives, two parallel lines might join some day.
-　　
+12月20.多云转雨。
+就像这个城市大多数人一样，当他们生活在一起时对彼此一无所知……
+然而，在人们的生活总有许多巧合,两条平行线也可能会有交汇的一天。
 Dec.22. Cloudy with sunshine periods. The thick cloud still covers the top of the hills.
 Then, one day, they meet in front of the fountain in the park.
+12月22.多云伴着阳光，厚厚的云层仍然覆盖着山顶。
+然后，一天，他们在公园的喷泉前相遇。
