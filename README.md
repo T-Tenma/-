@@ -312,3 +312,157 @@ Dec.22. Cloudy with sunshine periods. The thick cloud still covers the top of th
 Then, one day, they meet in front of the fountain in the park.
 12月22.多云伴着阳光，厚厚的云层仍然覆盖着山顶。
 然后，一天，他们在公园的喷泉前相遇。
+
+
+#### 参考译文
+That winter was extremely cold.
+
+那年的冬天特别寒冷，
+The damp rain mantled the whole city.　
+
+整个城市笼罩在阴湿的雨里。
+Gray sky, and no sunshine.
+
+灰蒙蒙的天空，迟迟见不着阳光，
+Inexplicably depressed.　
+
+让人感到莫名的沮丧，
+Sometimes, tears just can't help trickling down
+
+while walking on the street…
+
+常常走在街上就有一种落泪的冲动…
+
+
+￼
+
+
+In the same apartment building…
+
+在同一栋公寓里…
+
+She lives in an old apartment in the city suburb.　
+
+她住在城市郊区的一栋旧公寓大楼里，
+Every time, wherever she goes, she is used to turning left.
+每次出门，不管去哪里，总是习惯性的先向左走。
+　
+
+He lives in an old apartment in the city suburb.
+
+他住在城市郊区的一栋旧公寓大楼里，
+
+Every time, wherever he goes, he is used to turning right.
+
+每次出门，不管去哪里，总是习惯性的先向右走。
+
+Oct.15. The sun is covered occasionally by the cloud. Bright followed by dark inside. 
+
+He never meets her.
+
+10月15日 阳光被不断飘过的云朵遮住，屋内的光线忽明忽暗。 
+
+他从不曾遇见她。
+
+
+Oct.28. Sunshine.
+
+10月28日 天气晴。
+He is not doing well these days.
+
+他近来不是过得很好，
+Sometimes, he goes to the restaurant to make some tips by playing his violin.
+晚上偶尔会到城市中的上流餐厅拉琴赚点外快。
+
+￼
+
+
+Nov.7. Cloudy and wet, a thin layer of sadness of winter.
+
+11月7日 天气阴湿，有一种冬天来时，淡淡忧郁情绪。
+
+He likes wandering outside when he does not practice his violin.
+
+不练琴时，他喜欢在外面闲晃，
+Gives food to the doves in the park, always sits idly for the whole afternoon.
+绕到城里的公园去喂鸽子，常常呆坐整个下午。
+
+Nov.11. Afternoon, chilly wind.
+
+11月11日 午后，开始刮起一阵阵的冷风。
+
+Sometimes, he feels empty and weak.　
+
+有时候他会觉得空虚无力。
+
+Nov.19. Winter sunshine lengthens the shadow.
+
+11月19日 冬天的阳光将影子拉得好长好长。
+She is used to walking on the left.　
+
+她习惯向左走，
+He is used to walking on the right.
+
+他习惯向右走，
+
+They never meet.
+
+他们始终不相遇。
+
+Nov.23. Dark early.
+
+11月23日 天色暗的很快，五点不到天就黑了。
+She is translating a sad novel,
+
+她正在翻译一本悲惨的小说，
+which makes her always feel the whole world is sad and gray.
+
+ 让她常常觉得世界一片灰暗。
+
+
+￼
+
+
+Dec.2. The thick clouds float slowly at the corner of the sky.
+
+12月2日 厚重的云层在远方缓慢的移动。
+When free, she likes to have a coffee downtown,　
+
+不工作时，她喜欢逛到城里喝杯咖啡，
+
+walk along the street, watch the people pass by, talk to the homeless cat.　
+在街上散步，看来往的行人，和路边的野猫说话。
+
+Dec. 10. Sunshine. Very damp in the room.　
+
+12月10日 太阳出来了，屋内却感到特别潮湿。
+Sometimes, she feels life is boring.　
+有时候她会感到人生乏味。
+
+Dec.17. Sunny.
+
+12月17日　天气晴。
+She is used to riding on the left. He is used to riding on the right. They never meet.    
+
+她习惯向左走，他习惯向右走，他们始终不曾相遇。
+
+Dec.20. Cloudy to rain.
+
+12月20日 好像又要下雨了。
+Like most people in the city, they know nothing about each other while living together…　　
+就像城市里的大多数人一样，一辈子也不会认识，却一直生活在一起…
+
+￼
+
+
+However, there always are some coincidences in people's lives, two parallel lines might join some day.　
+
+但是， 人生总有许多巧合，两条平行线也可能会有交汇的一天。
+
+　　
+Dec.22. Cloudy with sunshine periods. The thick cloud still covers the top of the hills.
+
+12月22日 太阳微微露脸，浓密的乌云仍堆挤在山顶。
+
+Then, one day, they meet in front of the fountain in the park.　　
+于是，有一天，他们在公园里的喷水池前相遇了。
