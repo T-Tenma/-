@@ -544,3 +544,194 @@ one day at a time.'
 是爱给予我们快乐。
 选择从此过上幸福的生活，随其自然。
 
+
+#### 参考译文
+It was many years ago. 
+
+I was a young dad sitting on the couch
+
+reading a fairy tale to my little girl. 
+
+很多年前我还是个年轻的爸爸
+
+坐在沙发上给小女儿讲童话故事
+
+
+She sat next to me with her head on my arm 
+
+as I told the tale. 
+
+她坐在我身边
+
+头枕在我胳膊上听我讲故事
+
+
+When it came to the end I finished 
+
+with those famous words:
+
+ 'And they lived happily ever after.' 
+
+故事的最后我用那句经典的话作结束语：
+
+“从此他们过上了幸福的生活。”
+
+
+As I looked over to her with her wavy, brown hair 
+
+and big, innocent eyes 
+
+I could see the smile on her face 
+
+and I never wanted it to end. 
+
+我看着她
+
+她有着卷曲的棕色头发
+
+和大大的、天真的眼睛
+
+我能从她的脸上看到微笑
+
+我希望能永远这样看着她
+
+
+It dawned on me then that the ending of the book 
+
+was what I wanted for her.
+
+I wanted her to 'live happily ever after.'
+
+那时我明白了故事的结尾也是我对她的期望
+
+我希望她“从此过上幸福的生活。”
+
+
+Still, deep in my heart 
+
+I knew that this couldn't always be so. 
+
+I knew that there would be times 
+
+when her heart was broken.
+
+然而内心深处我知道现实并非总能如我所愿
+
+我知道有时她会伤心
+
+
+ I knew there would be times 
+
+when she cried in grief and I couldn't comfort her. 
+
+我知道有时她会伤心地哭泣
+
+而我却不能给她安慰
+
+
+I knew there would be times 
+
+when all she felt 
+
+was fear, sadness, sorrow, and despair. 
+
+我知道
+
+有时她只会感到
+
+恐惧、伤心、懊悔和绝望
+
+
+As I stroked her hair and smiled at her 
+
+I hoped that those times would be brief 
+
+and that she would have joy in her life more often than not. 
+
+Living happily ever after, 
+
+though
+
+seemed out of the question.
+
+我抚摸着她的头发，对她微笑
+
+我希望那些时刻都能很快过去
+
+希望她的生活中更多的是快乐
+
+然而
+
+从此过上幸福生活似乎是不可能的
+
+ 
+
+It took me a lot of years to realize 
+
+that it IS possible to live happily ever after. 
+
+很多年以后我才意识到
+
+从此过上幸福生活是可以实现的。
+
+
+You just have to do it 'one day at a time.' 
+
+Happiness you see isn't some reward 
+
+hat you get at the end of your journey.
+
+你只需要“认真过好每一天”。
+
+你看到的幸福
+
+并非你人生旅程最终的奖励
+
+
+ Happiness isn't something dependent 
+
+on what life hands you. 
+
+Happiness is something you create in your life 
+
+choice by choice 
+
+and day by day.
+
+幸福不是取决于生活赐予你什么，
+
+而是你日复一日通过一个个选择
+
+在生活中创造出来的。
+
+
+The truth is happiness comes when you love. 
+
+Love is a gift from God.
+
+事实是幸福就是付出爱时的体验，
+
+爱是上帝恩赐的礼物。
+
+
+It is love that mends broken hearts.
+
+It is love that heals grief. 
+
+It is love that gives us joy. 
+
+只有爱才能修复受伤的心灵
+
+只有爱才能抚平伤痛
+
+只有爱才能给我们带来快乐
+
+
+Choose to 'live happily ever after, 
+
+one day at a time.'
+
+选择“从此过上幸福的生活，
+
+过好每一天。”
+
