@@ -748,3 +748,14 @@ Years may wrinkle the skin, but to give up enthusiasm wrinkles the soul. Worry, 
 Whether 60 or 16, there is in every human being's heart the lure of wonder, the unfailing childlike appetite of what's next and the joy of the game of living. In the center of your heart and my heart there is a wireless station: so long as it receives messages of beauty, hope, cheer, courage and power from men and from the Infinite, so long as you are young.
 
 When the aerials are down, and your spirit is covered with snows of cynicism and the ice of pessimism, then you are grown old, even at 20, but as long as your aerials are up, to catch waves of optimism, there is hope you may die young at 80.
+
+#### 译文
+青春不是人生的一段时间，而是一种精神状态。青春不是桃面、丹唇、柔膝，而是深沉的意志、丰富的想象、炽热的感情。青春是生命的深泉在涌动。
+
+青春意味着战胜怯懦的勇气，意味着对冒险的渴望胜过对安逸的热爱。这些通常更多的存在于60岁的男人身上而不是20岁的男孩。没有人仅仅因年龄的增长而变老。
+
+岁月流逝只令容颜苍老，激情不再却使心灵枯萎。忧虑，恐惧，缺乏自信会使心灵扭曲，使精神蒙尘。
+
+无论是60或者是16，每个人的心中都有来自奇迹的诱惑，孩童般天真的对未来的渴望和生活的乐趣。在你我心中都有一个无线站：只要从年轻人那里接受美好、希望、欢乐、勇气和力量的信号，你就保持青春。
+
+当天线降下来，你的精神被玩世不恭和悲观厌世的冰雪覆盖，那么你就老了，尽管你在20岁，但只要你竖起天线，头接收乐观的电波，那么你有希望在80岁的时候英年早逝。
