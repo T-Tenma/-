@@ -759,3 +759,43 @@ When the aerials are down, and your spirit is covered with snows of cynicism and
 无论是60或者是16，每个人的心中都有来自奇迹的诱惑，孩童般天真的对未来的渴望和生活的乐趣。在你我心中都有一个无线站：只要从年轻人那里接受美好、希望、欢乐、勇气和力量的信号，你就保持青春。
 
 当天线降下来，你的精神被玩世不恭和悲观厌世的冰雪覆盖，那么你就老了，尽管你在20岁，但只要你竖起天线，头接收乐观的电波，那么你有希望在80岁的时候英年早逝。
+
+### 2017-11-21
+#### 原文
+14 East 95th St., New York City
+9th February, 1952
+
+SLOTH,
+ 
+I could ROT over here before you'd send me anything to read. I oughta run straight down to brentano's which I would if anything I wanted was in print. You may add Walton's Lives to the list of books you aren't sending me.
+ 
+You may add Walton's Lives to the list of books you aren't sending me. It's against my principles to buy a book I haven't read, it's like buying a dress you haven't tried on, but you can't even get Walton's Lives in a library over here.
+ 
+They have it down at the 42nd street branch. But not to take home! The lady said to me, shocked. Eat it here. Just sit right down in room 315 and read the whole book without a cup of coffee, a cigarette or air.
+ 
+Doesn't matter, Q quoted enough of it so I know I'll like it. Anything he liked I'll like except if it's fiction. I never can get interested in things that didn't happen to people who never lived.
+ 
+What do you do with yourself all day, sit in the back of the store and read? Why don't you try selling a book to somebody?
+ 
+MISS Hanff to you.
+(I'm Helene only to my FRIENDS)
+ 
+p.s. tell the girls and Nora if all goes well they're getting nylons for Lent.
+
+
+84, Charing Cross Road, London
+14th February, 1952
+ 
+Dear Helene,
+ 
+I quite agree it is time we dropped the “Miss” when writing to you. I am not really so stand-offish as you may have been led to believe, but as copies of letters I have written to you go into the office files the formal address seemed more appropriate. But as this letter has nothing to do with books, there will be no copy.
+ 
+We are quite at a loss to know how you managed the nylons which appeared this noon as if by magic. All I can tell you is that when I came back from lunch they were on my desk with a note reading: “From Helene Hanff.” No one seems to know how or when they arrived. The girls are very thrilled and I believe they are planning to write to you themselves.
+ 
+I am sorry to say that our friend Mr. George Martin who has been so ill for some time passed away in hospital last week. He was with the firm a great number of years, so with that loss and the King dying so suddenly as well, we are rather a mournful crowd at the moment.
+ 
+I don’t see how we can ever repay you for your many kind gifts. All I can say is, if you ever decide to make the trip to England, there will be a bed for you at 37 Oakfield Court for as long as you care to stay.
+ 
+With best wishes from us all,
+ 
+Frank Doel
