@@ -771,11 +771,12 @@ When the aerials are down, and your spirit is covered with snows of cynicism and
 #### 原文
 14 East 95th St., New York City
 9th February, 1952
-
+纽约市东14街95号
+1952年，2月9号
 SLOTH,
  
 I could ROT over here before you'd send me anything to read. I oughta run straight down to brentano's which I would if anything I wanted was in print. You may add Walton's Lives to the list of books you aren't sending me.
- 
+在你发给我任何可以阅读的东西之前，我会腐烂在这里的。
 You may add Walton's Lives to the list of books you aren't sending me. It's against my principles to buy a book I haven't read, it's like buying a dress you haven't tried on, but you can't even get Walton's Lives in a library over here.
  
 They have it down at the 42nd street branch. But not to take home! The lady said to me, shocked. Eat it here. Just sit right down in room 315 and read the whole book without a cup of coffee, a cigarette or air.
