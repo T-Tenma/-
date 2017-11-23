@@ -776,34 +776,36 @@ When the aerials are down, and your spirit is covered with snows of cynicism and
 SLOTH,
  
 I could ROT over here before you'd send me anything to read. I oughta run straight down to brentano's which I would if anything I wanted was in print. You may add Walton's Lives to the list of books you aren't sending me.
-在你发给我任何可以阅读的东西之前，我会腐烂在这里的。
-You may add Walton's Lives to the list of books you aren't sending me. It's against my principles to buy a book I haven't read, it's like buying a dress you haven't tried on, but you can't even get Walton's Lives in a library over here.
- 
+在你发给我任何可以阅读的东西之前，我会腐烂在这里的。我应该直接跑到布伦达诺，如果我想要的话，我会把它印出来。你可能把《沃尔顿的生活》添加到你没有寄给我的书单上。
+ It's against my principles to buy a book I haven't read, it's like buying a dress you haven't tried on, but you can't even get Walton's Lives in a library over here.
+ 买一本我不会读的书这有违我的原则，就像买一条不会穿的裙子，但是你在这里甚至不能在图书馆中找到《沃尔顿的生活》
 They have it down at the 42nd street branch. But not to take home! The lady said to me, shocked. Eat it here. Just sit right down in room 315 and read the whole book without a cup of coffee, a cigarette or air.
- 
+ 在42号街道分支有一本，这让我很震惊，那位女士告诉我，不能带回家！在这里次，只要坐在315号房间，然后在没有咖啡、香烟和空气的情况下阅读一整本书。
 Doesn't matter, Q quoted enough of it so I know I'll like it. Anything he liked I'll like except if it's fiction. I never can get interested in things that didn't happen to people who never lived.
- 
+没关系，Q引用了足够多的话，我知道我会喜欢的。他喜欢的任何东西我都喜欢，除非是小说。我从来不会对那些从来没有发生过的事情感兴趣。
 What do you do with yourself all day, sit in the back of the store and read? Why don't you try selling a book to somebody?
- 
+你自个一天在干啥呢？坐在商店后面阅读？为啥你不试着买一本书给其他人？
 MISS Hanff to you.
 (I'm Helene only to my FRIENDS)
- 
+ Hanff小姐给你。
+ （我是Helene只给我的朋友）
 p.s. tell the girls and Nora if all goes well they're getting nylons for Lent.
-
+PS：告诉女孩们和Nora，如果一切顺利的话，她们能借得到尼龙长袜。
 
 84, Charing Cross Road, London
 14th February, 1952
- 
+伦敦市查令十字街84号
+1952年2月14日
 Dear Helene,
- 
+亲爱的helene
 I quite agree it is time we dropped the “Miss” when writing to you. I am not really so stand-offish as you may have been led to believe, but as copies of letters I have written to you go into the office files the formal address seemed more appropriate. But as this letter has nothing to do with books, there will be no copy.
- 
+我非常同意是时候给你写信了，我们删除了“MISS”。我并不像你可能相信的那样真的是那么的孤立无援，但是我给你写的信的副本都写进了办公室的文件，而正式的地址似乎更合适。但由于这封信与书无关，所以没有副本。
 We are quite at a loss to know how you managed the nylons which appeared this noon as if by magic. All I can tell you is that when I came back from lunch they were on my desk with a note reading: “From Helene Hanff.” No one seems to know how or when they arrived. The girls are very thrilled and I believe they are planning to write to you themselves.
- 
+我们很茫然不知你们是如何管理今天中午出现的尼龙长袜，就像魔法一样。我能告诉你的是，午饭回来的时候他们在我的办公桌上有一纸条：“从Helene Hanff。”没人知道是如何是什么时候到的。女孩们非常激动，我相信她们正在计划给你写信。
 I am sorry to say that our friend Mr. George Martin who has been so ill for some time passed away in hospital last week. He was with the firm a great number of years, so with that loss and the King dying so suddenly as well, we are rather a mournful crowd at the moment.
- 
+我很遗憾地说，我们的朋友乔治·马丁先生上个星期病得很重。他在这家公司呆了很多年，在这种损失下，国王也突然去世，所以我们现在是悲伤的人群。
 I don’t see how we can ever repay you for your many kind gifts. All I can say is, if you ever decide to make the trip to England, there will be a bed for you at 37 Oakfield Court for as long as you care to stay.
- 
+我看不出我们怎样才能报答你的礼物。我能说得的是，如果你什么时候想来英国旅游了，只要你愿意留下，奥克菲尔德法院37号就会有一张床。
 With best wishes from us all,
- 
+来自大家衷心的祝愿。
 Frank Doel
