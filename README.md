@@ -815,6 +815,7 @@ Frank Doel
 3 EXERCISES TO END BACK PAIN
 
 IS YOUR BACK BOTHERING YOU? RESEARCH SHOWS THAT MOVING MORE CAN BE THE BEST MEDICINE. HERE ARE 3 WAYS TO SEND YOUR BACK PAIN PACKING.
+
 1. Stretching
 The proof: A recent study found that stretching is just as effective as yoga at decreasing back-pain.
 Why it works: Stretching of any kind, whether static (you hold the pose) or dynamic (you move through a complete range of motion), can help improve flexibility and decrease back-pain risk and symptoms.
@@ -832,3 +833,25 @@ The proof: Physical therapists have long advocated doing traditional resistance 
 Why it works: It stabilizes and strengthens your entire body. “Back pain can occur when muscles are not prepared for a certain movement, whether that’s lifting a heavy box or carrying a child,” says A. Lynn Millar, PT, PhD, a professor of physical therapy at Winston-Salem State University.
 Try this move:Body Squat (strengthens legs, glutes, core)
 Stand with feet hip-distance apart. Bend knees, shifting hips back as if sitting into a chair, and lift arms. Hold for 1 count; return to start. Do 10 to 15 reps.
+
+#### 译文
+3种运动结束背部疼痛
+你的背部困扰着你吗？研究表明多运动就是最好的药。这里有3中方法可以帮你减轻疼痛。
+
+1.拉伸
+证据：最近的一个研究发现伸展运动于减轻背痛和瑜伽一样有效。
+原因：无论是什么样的拉伸，是静止的（保持姿势）还是动态的（通过这种各样的动作）都可以帮助提高柔韧性，以及减少背痛的风险和症状。
+试试这个动作：班弓步（拉伸臀部和小腿）双脚交叉站立，左腿在前，弯曲前膝大约90°并降低你后面的那条腿到离地面大约几英尺。将右髋向前，感觉髋关节前部的拉伸。保持20到30秒，交换。
+
+2.瑜伽
+证明：最近两项已发表的研究发现，练习瑜伽的人比联系其他运动的人更少的患有背痛以及更高的柔韧性。
+原因：瑜伽将力量和平衡结合为拉伸，有助于支撑虚弱的肌肉和放松紧绷的肌肉。这也是一种缓解压力的方式，紧张会导致紧绷。
+试试这个动作：儿童姿势（向后伸展；慢慢放松）坐在脚跟，膝盖与臀部分开。呼气，让身体在大腿间慢慢下沉。手臂向前，保持30到60秒。
+
+3.力量训练
+证明：物理治疗师一直提倡做传统阻力训练（只用体重带，哑铃，或机器）提高力量和恢复能力，尤其是在日常活动中。
+原因：它稳定和加强你的整个身体。温斯顿塞勒姆州立大学物理治疗学教授A博士说:“当肌肉没有为某种运动做好准备时，背部疼痛就会发生，无论是抬着一个沉重的箱子还是抱着一个小孩。”
+试试这个动作：身体下蹲（增强腿部、臀部、核心）双脚分开站立。弯曲膝盖，向后移动臀部，就像坐在椅子上，举起手臂。坚持1个八拍，回到开始。重复10到15次。
+
+
+
