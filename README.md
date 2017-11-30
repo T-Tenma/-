@@ -854,4 +854,16 @@ Stand with feet hip-distance apart. Bend knees, shifting hips back as if sitting
 试试这个动作：身体下蹲（增强腿部、臀部、核心）双脚分开站立。弯曲膝盖，向后移动臀部，就像坐在椅子上，举起手臂。坚持1个八拍，回到开始。重复10到15次。
 
 
+### 2017-11-30
+#### 原文
+I grew up in a small town where the elementary school was a ten-minute walk from my house and in an age not so long ago, when children could go home for lunch and find their mothers waiting.
 
+At the time, I did not consider this a luxury, although today it certainly would be. I took it for granted that mothers were the sandwich-makers, the finger-painting appreciators and the homework monitors.
+
+I never questioned that this ambitious, intelligent woman, who had had a career before I was born and would eventually return to a career, would spend almost every lunch hour throughout my elementary school years just with me.
+
+I only knew that when the noon bell rang, I would race breathlessly home. My mother would be standing at the top of the stairs, smiling down at me with a look that suggested I was the only important thing she had on her mind.
+
+For this, I am forever grateful. Some sounds bring it all back: the highpitched squeal of my mother's teakettle, the rumble of the washing machine in the basement and the jangle of my dog's license tags as she bounded down the stairs to greet me.
+
+Our time together seemed devoid of the gerrymandered schedules that now pervade my life.
