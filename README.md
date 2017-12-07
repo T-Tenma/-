@@ -867,3 +867,12 @@ I only knew that when the noon bell rang, I would race breathlessly home. My mot
 For this, I am forever grateful. Some sounds bring it all back: the highpitched squeal of my mother's teakettle, the rumble of the washing machine in the basement and the jangle of my dog's license tags as she bounded down the stairs to greet me.
 
 Our time together seemed devoid of the gerrymandered schedules that now pervade my life.
+
+
+#### 译文
+我在一个小镇上长大，那里的小学离我家有十分钟的路程，而在不久以前，孩子们可以回家吃午饭，发现他们的母亲在等着。
+当时，我并不认为这是一种奢侈，尽管今天也不会。我想当然地认为妈妈们是做三明治的人，手指绘画鉴赏家和家庭作业监督者。
+我从来没有怀疑过这个雄心勃勃、聪明的女人在我出生前就有了事业，将来还会回到职业生涯中，在我的小学阶段，几乎每一个午餐时间都和我在一起。
+我只知道，当中午下课铃一响，我就气喘吁吁地跑回家。我的母亲会站在楼梯的顶端，面带微笑地看着我，这说明我是她心中唯一重要的东西。
+对此，我永远心存感激。 一些声音将一切都带回来了：母亲的烧水壶的高音尖叫，在地下室下隆隆的洗衣机和我的狗的牌照的声音，她跳下楼来迎接我。
+和母亲在一起的岁月所缺乏的那些事先安排充满了我现在的生活。
