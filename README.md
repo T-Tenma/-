@@ -876,3 +876,100 @@ Our time together seemed devoid of the gerrymandered schedules that now pervade 
 我只知道，当中午下课铃一响，我就气喘吁吁地跑回家。我的母亲会站在楼梯的顶端，面带微笑地看着我，这说明我是她心中唯一重要的东西。
 对此，我永远心存感激。 一些声音将一切都带回来了：母亲的烧水壶的高音尖叫，在地下室下隆隆的洗衣机和我的狗的牌照的声音，她跳下楼来迎接我。
 和母亲在一起的岁月所缺乏的那些事先安排充满了我现在的生活。
+
+
+
+### 2017-12-11
+#### 原文
+Hi! It's your body here! 
+Allow me to reintroduce myself. 
+
+I'm the home that you've always lived in. 
+Surely you remember.
+We grew up together!
+
+And I'm writing in this letter cause, 
+I feel neglected in this relationship,
+very disappointed in what I've been seeing. 
+
+With your ambition to make money 
+you sacrificed my well being, 
+which makes no sense in the least 
+because when I get sick 
+you sacrificed that same money 
+to recuperate ME.
+ 
+And what's even more ironic
+is with all your interest in profit 
+you can't even see the truth
+that I'm worth over A BILLION DOLLARS.
+
+Don't believe me?
+Okay I'll prove it.
+ 
+If someone came to you 
+with a check for One Million 
+and said “Here. 
+All I want in return is your eyesight.”
+ 
+You will never be able to see another sunset 
+for the rest of your natural life. 
+Would you take that deal?
+ 
+Ok, let's up the bid.
+ 
+Suppose he had a check for Ten Million instead, 
+And if you accepted 
+you would no longer have use of your arms or legs. 
+Would you take THAT deal?
+ 
+I can answer that for you. 
+NO.
+
+Those are silly options because you know that
+as your body I am worth over a BILLION DOLLARS.
+ 
+And don't get me started with the heart. 
+If I was a company, right? 
+This Heart wouldn't get Employee of the Month. 
+It would get the Employee of the LIFE!
+ 
+Because throughout your entire existence as a person, 
+your heart never stops working! 
+
+Even when you're sleeping 
+it doesn't stop beating,
+that's EVERY SECOND 
+EVERY MINUTE 
+EVERY DAY 
+and come to think of it 
+I can't recall you ever saying Thanks.
+
+Anyway I don't want this to come off as rude. 
+Just asking for a little attention here dude.
+ 
+I know you try to make me look perfect 
+when you're Instagramming. 
+But we both know you been taking me for granted.
+
+Consider this an opportunity. 
+After this video ends 
+don't click to the next one like you do usually. 
+
+Take some time by yourself. 
+Just, you and me. 
+Place your hand on your chest 
+and say “Thank You” to your heartbeat. 
+
+To your EYES, LEGS, ARMS. 
+To your hands that your use for climbing. 
+To your lungs that bring you breathe 
+without you even trying.  
+
+I do it all for you, cause you come first.
+Cause you're my homie! 
+We go way back, don't we? 
+Like, birth?
+
+I just think it's time 
+you start treating me what I'm worth.
