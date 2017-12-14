@@ -1000,3 +1000,304 @@ you start treating me what I'm worth.
 我为你作者一切，因为你先来。因为你是我的兄弟！我们要回去了，不是吗？
 就像，出生。
 我只是觉得现在是时候了，你开始探讨我的价值。
+
+#### 参考译文
+Hi! It's your body here! 
+
+Allow me to reintroduce myself. 
+
+嗨，我是你的身体！
+
+允许我再自我介绍一下。
+
+
+I'm the home that you've always lived in. 
+
+Surely you remember.
+
+We grew up together!
+
+我是你一直住着的“家”。
+
+你肯定记得我，
+
+我们一起长大的。
+
+
+And I'm writing in this letter cause, 
+
+I feel neglected in this relationship,
+
+very disappointed in what I've been seeing. 
+
+我写这封信是因为，
+
+我感觉我在这段关系里被忽视了。
+
+我对我所看到的很失望。
+
+
+With your ambition to make money 
+
+you sacrificed my well being, 
+
+which makes no sense in the least 
+
+because when I get sick 
+
+you sacrificed that same money 
+
+to recuperate ME.
+
+你有想挣钱的雄心，
+
+却为此牺牲我的健康。
+
+这完全不合理，
+
+因为如果我病了，
+
+你赚的那些钱都要用来给我治病！
+
+ 
+
+And what's even more ironic
+
+is with all your interest in profit 
+
+you can't even see the truth
+
+that I'm worth over A BILLION DOLLARS.
+
+更讽刺的是，
+
+你利欲熏心，
+
+甚至看不清这个事实：
+
+我才是最宝贵的啊！ 
+
+
+Don't believe me?
+
+Okay I'll prove it.
+
+你不相信？
+
+好吧，我证明给你看。
+
+ 
+
+If someone came to you 
+
+with a check for One Million 
+
+and said “Here. 
+
+All I want in return is your eyesight.”
+
+如果有人拿着100万的支票来找你，
+
+他说：“给你，作为交换，
+
+我想要你的视觉。”
+
+ 
+
+You will never be able to see another sunset 
+
+for the rest of your natural life. 
+
+Would you take that deal?
+
+你将在余生里再也看不到夕阳，
+
+这样的交易你愿意吗？
+
+ 
+
+Ok, let's up the bid.
+
+好吧，让我们把赌注加大
+
+ 
+
+Suppose he had a check for Ten Million instead, 
+
+And if you accepted 
+
+you would no longer have use of your arms or legs. 
+
+Would you take THAT deal?
+
+假设他有一张千万的支票，
+
+如果你接受了，
+
+你将再也无法使用四肢。
+
+你要交换吗？
+
+ 
+
+I can answer that for you. 
+
+NO.
+
+我可以替你回答。NO。
+
+
+Those are silly options because you know that
+
+as your body I am worth over a BILLION DOLLARS.
+
+这都是一些很愚蠢的选择，
+
+因为我的价值远不止于此。
+
+ 
+
+And don't get me started with the heart. 
+
+If I was a company, right? 
+
+This Heart wouldn't get Employee of the Month. 
+
+It would get the Employee of the LIFE!
+
+别让我提心脏了。
+
+如果我是一间公司，
+
+心脏不会得到“月度最佳员工”称号。
+
+它要得到的是“终身最佳员工”。
+
+ 
+
+Because throughout your entire existence as a person, 
+
+your heart never stops working! 
+
+因为在你的一生里，
+
+你的心脏从未停止工作！
+
+
+Even when you're sleeping 
+
+it doesn't stop beating,
+
+that's EVERY SECOND 
+
+EVERY MINUTE 
+
+EVERY DAY 
+
+and come to think of it 
+
+I can't recall you ever saying Thanks.
+
+即使在你睡觉时，
+
+它也没有停止跳动，
+
+每秒每分每天都在工作，
+
+现在想想，
+
+我不曾听你说过谢谢。
+
+
+Anyway I don't want this to come off as rude. 
+
+Just asking for a little attention here dude.
+
+无论如何，
+
+我不想冒犯你，
+
+只是想要你对我多点关心。
+
+ 
+
+I know you try to make me look perfect 
+
+when you're Instagramming. 
+
+But we both know you been taking me for granted.
+
+我知道你发朋友圈时想让我尽量看起来完美。
+
+但是我们都知道，
+
+你并不重视我。
+
+
+Consider this an opportunity. 
+
+After this video ends 
+
+don't click to the next one like you do usually. 
+
+借此机会，
+
+看完这个视频，
+
+别忙着像往常一样点下一个。
+
+
+Take some time by yourself. 
+
+Just, you and me. 
+
+Place your hand on your chest 
+
+and say “Thank You” to your heartbeat. 
+
+给你和我一点独处的时间。
+
+把你的手放在胸口，对心脏说“谢谢”。
+
+
+To your EYES, LEGS, ARMS. 
+
+To your hands that your use for climbing. 
+
+To your lungs that bring you breathe 
+
+without you even trying.  
+
+对你的眼睛、双腿、胳膊，
+
+对你用来攀爬的手，
+
+对让你呼吸的肺部说“谢谢”。 
+
+
+I do it all for you, cause you come first.
+
+Cause you're my homie! 
+
+We go way back, don't we? 
+
+Like, birth?
+
+我为你做这一切，
+
+是因为你永远是我的第一位，
+
+因为你是我的好朋友，
+
+我们认识很久了，对吧？
+
+大概，从出生开始？
+
+
+I just think it's time 
+
+you start treating me what I'm worth.
+
+我想，
+
+是时候你该给我应有的对待了。
