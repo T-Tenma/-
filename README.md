@@ -1366,3 +1366,45 @@ Choose to live a life that matters.
 过一种重要的生活不会是偶然发生的。
 环境并不重要，重要的是选择。
 选择过有意义的生活。
+
+#### 参考
+Ready or not, some day it will all come to an end. There will be no more sunrises, no days, no hours or minutes.
+无论准备好与否，总会有一天生命会走向尽头。那里没有日出，没有白天，没有小时又或分钟。
+All the things you collected, whether treasured or forgotten, will pass to someone else.
+所有你所收集的东西，不管你珍惜或忘记，它们都终将流入他人手中。
+Your wealth, fame and temporal power will shrivel to irrelevance. It will not matter what you owned or what you were owed.
+不管是你得到的或是你欠别人的，可你的财产、名誉和权势也都会变成和你毫不相干的东西。
+Your grudges, resentments, frustrations, and jealousies will finally disappear.
+你的怨恨、愤慨、挫折和妒忌最终也将消失。
+So, too, your hopes, ambitions, plans, and to-do lists will all expire.
+因此，你的希望、抱负、计划以及行动日程表也将全部结束。
+The wins and losses that once seemed so important will fade away.
+当初看得比较重的成功得失也会消失。
+It won't matter where you came from, or on what side of the tracks you lived.
+你来自何方，住在穷人区还是富人区也都不重要了。
+It won't matter whether you were beautiful or brilliant.Your gender, skin color, ethnicity will be irrelevant.
+你昔日的漂亮与辉煌也都不重要了，你的性别、肤色、种族地位也将消失。
+So what will matter?How will the value of your days be measured?
+因此，什么重要呢？怎么衡量你有生之年的价值呢？
+What will matter is not what you bought, but what you built;not what you got, but what you gave.
+萤要的不是你买了什么，而是你创造了什么；不是你得到了什么，而是你给予了什么。
+What will matter is not your success, but your significance.
+重要的不是你成功了，而是你生命的意义。
+What will matter is not what you learned, but what you taught.
+重要的不是你学到了什么，而是你传授了什么。
+What will matter is every act of integrity, compassion, courage and sacrifice that enriched, empowered or encouraged others to emulate your example.
+重要的是每个行动之中都有正直和勇气的气概，伟大的同情心和牺牲精神，并且鼓励他人遵从榜样。
+What will matter is not your competence, but your character.
+重要的不是你的能力，而是你的性格。
+What will matter is not how many people you knew, but how many will feel a lasting loss whenyou re gone.
+重要的不是你认识多少人，而是在你离开后，别人会认为是个永远的损失。
+What will matter is not your memories, but the memories of those who loved you.
+重要的不是你想念谁，而是爱你的人想念你。
+What will matter is how long you will be remembered, by whom and for what.
+重要的是别人会记你多长时间，谁记着你，为什么记着你。
+Living a life that matters doesn t happen by accident.
+生命中重要的是平安无事。
+It's not a matter of circumstance but of choice.
+那不是环境的问题，而是选择的问题。
+Choose to live a life that matters.
+选择有意义的人生吧！
