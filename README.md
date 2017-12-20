@@ -1301,3 +1301,68 @@ you start treating me what I'm worth.
 我想，
 
 是时候你该给我应有的对待了。
+
+
+### 2017-12-20
+#### 原文
+Ready or not, some day it will all come to an end. There will be no more sunrises, no days, no hours or minutes.
+
+All the things you collected, whether treasured or forgotten, will pass to someone else.
+
+Your wealth, fame and temporal power will shrivel to irrelevance. It will not matter what you owned or what you were owed.
+
+Your grudges, resentments, frustrations, and jealousies will finally disappear.
+
+So, too, your hopes, ambitions, plans, and to-do lists will all expire.
+
+The wins and losses that once seemed so important will fade away.
+
+It won't matter where you came from, or on what side of the tracks you lived.
+
+It won't matter whether you were beautiful or brilliant.Your gender, skin color, ethnicity will be irrelevant.
+
+So what will matter?How will the value of your days be measured?
+
+What will matter is not what you bought, but what you built;not what you got, but what you gave.
+
+What will matter is not your success, but your significance.
+
+What will matter is not what you learned, but what you taught.
+
+What will matter is every act of integrity, compassion, courage and sacrifice that enriched, empowered or encouraged others to emulate your example.
+
+What will matter is not your competence, but your character.
+
+What will matter is not how many people you knew, but how many will feel a lasting loss whenyou re gone.
+
+What will matter is not your memories, but the memories of those who loved you.
+
+What will matter is how long you will be remembered, by whom and for what.
+
+Living a life that matters doesn t happen by accident.
+
+It's not a matter of circumstance but of choice.
+
+Choose to live a life that matters.
+
+#### 译文
+无论你是否准备好，有一天一切都会结束，这里不再有日出，没有白天，没有小时，没有分钟。
+你所收集的一切东西，不管是珍藏的还是遗忘的都会传给某人。
+你的财富、名望和世俗的权利都将毫无用处，你曾经拥有什么或亏欠什么都已经无所谓了。
+你的怨恨、愤慨、挫折和嫉妒最终都会消失。
+同样的，你的希望、抱负、计划和代办事项都将到期。
+曾经看起来如此重要的胜负逐渐消失。
+你来自哪里，或者你生活在哪一方都无关紧要。
+不管事漂亮还是聪明，你的性别、肤色、种族都无关紧要。
+那么什么才是重要的呢？怎么计算你的日子的价值？
+重要的不是你买的，而是你建造的；不是你得到的，而是你给予的。
+重要的不是你的成功，而是你的意义。
+重要的不是你学到的，而是你教的。
+重要的是每一个正直、同情、勇气和牺牲的行为，都会丰富、授权或激励他人以你为榜样。
+重要的不是你的能力，而是你的性格。
+重要的不是你知道多少人，而是在你离去后有多少人觉得是一个损失。
+重要的不是你的记忆，而是那些爱你的人的记忆。
+重要的是你会被铭记多长时间，被谁，为什么。
+过一种重要的生活不会是偶然发生的。
+环境并不重要，重要的是选择。
+选择过有意义的生活。
