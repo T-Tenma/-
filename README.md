@@ -1408,3 +1408,18 @@ It's not a matter of circumstance but of choice.
 那不是环境的问题，而是选择的问题。
 Choose to live a life that matters.
 选择有意义的人生吧！
+
+
+### 2017-12-25
+#### 原文
+In 1899, when Einstein studied at the Swiss Federal University of Technology in Zurich, his tutor was Minkevsky, a mathematician.
+
+Once Einstein asked Minkevsky, "How can a person, like me, leave his distinct footprints on the road of life and make an outstanding contribution in the scientific field?" It was a "sophisticated" problem. Minkevsky said that he had to think about it better and then gave him an answer.
+
+Three days later, Minkevsky told Einstein that the answer was coming! He pulled Einstein to walk toward a building site and straight set foot on the cement ground that the construction workers had just paved.
+
+In the workers' scolding, Einstein was confused to ask Minkevsky，"Sir, don't you lead me astray?"
+
+"Right, exactly!" Minkevsky said. "Have you seen it? Only the old road surface that have long solidified and on those place that have been passed by countless steps, you cannot tread out your footprint.
+
+Hearing that, Einstein thought long and nodded significantly, Since then, a very strong sense of innovation and pioneering consciousness began dominating Einstein's thinking and action. He said, "I never memorize and reflect what dictionaries and manuals carry, for my brain only memorize those things that are not included in books." It was such a reason that Einstein left his deep sparkling footprints in the history of science.
