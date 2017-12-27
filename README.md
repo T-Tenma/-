@@ -1423,3 +1423,11 @@ In the workers' scolding, Einstein was confused to ask Minkevsky，"Sir, don't y
 "Right, exactly!" Minkevsky said. "Have you seen it? Only the old road surface that have long solidified and on those place that have been passed by countless steps, you cannot tread out your footprint.
 
 Hearing that, Einstein thought long and nodded significantly, Since then, a very strong sense of innovation and pioneering consciousness began dominating Einstein's thinking and action. He said, "I never memorize and reflect what dictionaries and manuals carry, for my brain only memorize those things that are not included in books." It was such a reason that Einstein left his deep sparkling footprints in the history of science.
+
+#### 译文
+1899年当爱因斯坦就读于苏黎世联邦科技大学时，他的导师是明可夫斯基一个数学家。
+有一次爱因斯坦问明可夫斯基：“像我这样一个人，怎样才能在人生的道路上留下自己独特的狙击，在科学领域中做出杰出贡献呢？”这是一个复杂的问题。明可夫斯基说他需要好好想想再给他答案。
+三天后，明可夫斯基告诉爱因斯坦，答案就来了！他来着爱因斯坦走到一个建筑工地上，笔直地踩在建筑工人刚刚铺好的水泥地上。
+在工人的责骂声中，爱因斯坦困惑的问明可夫斯基“先生，您这不是让我误入歧途吗？”
+“当然，一定不会！”明可夫斯基说。“你看见没？只有那些长久固化的旧路面和那些通过无数的脚步的路，你不能留下你的足迹”。
+听到这里，爱因斯坦想了很长时间，然后若有所思的点了点头，从此，一个非常强烈的创新和开拓的意识开始主导着爱因斯坦的思维和行动。他说“我从来不记忆和考虑字典和手册，我的大脑只能记住那些不包括在书本中的东西。”这就是为什么爱因斯坦在科学史上留下了他光辉的足迹。
