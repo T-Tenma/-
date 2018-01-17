@@ -1434,8 +1434,8 @@ Hearing that, Einstein thought long and nodded significantly, Since then, a ver
 
 
 
-###2018-01-17
-####原文
+### 2018-01-17
+#### 原文
 
 I’m in my late twenties.
 
@@ -1481,7 +1481,7 @@ I’m in my late twenties.
 
 We are no longer as wild as when we were young. We treat all the adversities as part of our life and we try to tolerate and to embrace this life.
 
-####译文
+#### 译文
 我快30了。
 我曾经常常在中午12点起床，而现在早上七点就起来了。我曾经常常在午夜睡觉，而现在晚上11点就休息了。
 我快30了。
