@@ -1431,3 +1431,75 @@ Hearing that, Einstein thought long and nodded significantly, Since then, a ver
 在工人的责骂声中，爱因斯坦困惑的问明可夫斯基“先生，您这不是让我误入歧途吗？”
 “当然，一定不会！”明可夫斯基说。“你看见没？只有那些长久固化的旧路面和那些通过无数的脚步的路，你不能留下你的足迹”。
 听到这里，爱因斯坦想了很长时间，然后若有所思的点了点头，从此，一个非常强烈的创新和开拓的意识开始主导着爱因斯坦的思维和行动。他说“我从来不记忆和考虑字典和手册，我的大脑只能记住那些不包括在书本中的东西。”这就是为什么爱因斯坦在科学史上留下了他光辉的足迹。
+
+
+
+###2018-01-17
+####原文
+
+I’m in my late twenties.
+
+I used to get up at 12 o’clock in the afternoon and now 7 o’clock in the morning. I used to go to bed in the midnight and now 11 o’clock in the night.
+
+I’m in my late twenties.
+
+At work, I begin to contact different people.
+
+I’m in my late twenties.
+
+When you meet relatives and friends, they no longer ask you what scores you get in the school. Instead, they ask you how much money you make every month, and whether you are married or not.
+
+I’m in my late twenties. 
+
+Our chatting topics changed from online games to cars, houses.
+
+When having dinner, we always talk about when is he or she getting married.
+
+I’m in my late twenties.
+
+I no longer complain about the numerous homework which can never be done. I begin to worry about the increasing gas price, house price, as well as the ups and downs of the stock market.
+
+I’m in my late twenties.
+
+
+I no longer splash my money. Instead, I start to manage my account at the end of each month. Making note of how much have I spent and how much is left after paying my credit card. It’s time to save some money for the house.
+
+
+I’m in my late twenties.
+
+I’m getting tired of hanging around bars and KTVs. Being close to nature and a healthy living style is my favorite now.
+
+I’m in my late twenties.
+
+Sometimes, I feel lonely, and sometimes, I miss someone.
+
+I’m in my late twenties.
+
+We start chasing our dreams. We hide our tears and we don’t give up for that little setback.
+
+I’m in my late twenties.
+
+We are no longer as wild as when we were young. We treat all the adversities as part of our life and we try to tolerate and to embrace this life.
+
+####译文
+我快30了。
+我曾经常常在中午12点起床，而现在早上七点就起来了。我曾经常常在午夜睡觉，而现在晚上11点就休息了。
+我快30了。
+工作上，我开始联系各种不同的人员。
+我快30了。
+当你遇到亲戚朋友时，他们再也不问你在学校取的什么样的分数。相反，他们问你每月薪水多少，还有你是否结婚。
+我快30了。
+我们的话题从线上游戏转变成车、房。
+当我们吃晚饭时，我们总是讨论他或者她什么时候结婚。
+我快30了。
+我不再抱怨大量做不完的作业。我开始担心天然气价格上涨，房价上涨以及股市涨跌。
+我快30了。
+我不再浪费我的钱。相反我开始在每个月末管理我的账户。记下每笔花费以及还了信用卡后还剩有多少。是时候为房子存一点钱了。
+我快30了。
+我已经厌倦了酒吧、KTV。我现在最喜欢的是亲近自然和一个健康的生活方式。
+我快30了。
+有时候，我感觉孤独，有时候，我想念某人。
+我快30了。
+我们开始追逐我们的梦想。我们隐藏了我们的眼泪，我们不会为了小小的挫折而放弃。
+我快30了。
+我不在如我年轻时那样疯狂了。我们把所有的逆境当作我们生活的一部分，我们试图容忍和拥抱这个生活。
