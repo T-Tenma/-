@@ -1503,3 +1503,26 @@ We are no longer as wild as when we were young. We treat all the adversities a
 我们开始追逐我们的梦想。我们隐藏了我们的眼泪，我们不会为了小小的挫折而放弃。
 我快30了。
 我不在如我年轻时那样疯狂了。我们把所有的逆境当作我们生活的一部分，我们试图容忍和拥抱这个生活。
+
+### 2018-03-01
+#### 原文
+Just for today I will try to live through this day only and not tackle my whole life problem at once. I can do something for twelve hours that would appal me if I had to keep it up for a lifetime.
+Just for today I will be happy. This assumes to be true what Abraham Lincoln said, that “Most folks are as happy as they make up their minds to be.”
+Just for today I will adjust myself to what is, and not try to adjust everything to my own desires. I will take my “luck” as it comes.
+Just for today I will try to strengthen my mind. I will study. I will learn something useful. I will not be a mental loafer. I will read something that requires effort, thought and concentration.
+Just for today I will exercise my soul in three ways. I will do somebody a good turn and not get found out: If anybody knows of it, it will not count. I will do at least two things I don’t want to do—just for exercise. I will not show anyone that my feelings are hurt: they may be hurt, but today I will not show it.
+Just for today I will be agreeable. I will look as well as I can, dress becomingly, talk low, act courteously, criticize not one bit, and try not to improve or regulate anybody but myself.
+Just for today I will have a program, I may not follow it exactly, but I will have it. I will save myself from two pests: hurry and indecision.
+Just for today I will have a quiet half hour all by myself and relax. During this half hour, sometime, I will try to get a better perspective of my life.
+Just for today I will be unafraid. Especially I will not be afraid to enjoy what is beautiful, and to believe that as I give to the world, so the world will give to me.
+
+#### 译文
+只为了今天，我将试着只活在今天，而不是立刻解决终身问题。对于让我害怕又必须坚持一辈子的事，我只能做十二小时。
+只为了今天，我会变得快乐。亚伯拉罕·林肯说：“大多数人都和他们想象中一样高兴。”，这已经被证实了。
+只为了今天，我会调整自我去适应，而不是调整一切来满足我的欲望。当幸运来临时，我会抓住它。
+只为了今天，我会尽力加强我的大脑，我将学习。我将学习一些有用的东西。我将不会是一个精神上的拉人。我将读一些需要努力、思考和注意力集中的东西。
+只为了今天，我将用三种方式锻炼我的灵魂。我将做对某人有利的事儿并且不被发现。如果有人发现了，那就不算。我将做至少两件我不想做的事——只为了锻炼。我将不会向任何人展示我的感觉受到伤害，他们也许受到伤害，但是今天我不会表现出来。
+只为了今天，我将过的很惬意。我将尽我所能，穿着得体、讲话谦虚、行动优雅，一点不吹毛求疵，尽量改进和调节自己而不是别人。
+只为了今天，我将制定一个计划，我也许不会严格的遵守它，但是我将拥有。我将避免两种错误：仓促行事和优柔寡断。
+只为了今天，我将独自静静地呆上半个小时放松一下。在这半个小时里，有时，我将尽力对生活得到一个更好的看法。
+只为了今天，我将不再害怕，尤其是不再害怕享受美丽的事物，相信我给予世界的，世界也将给予我。
