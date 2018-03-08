@@ -1526,3 +1526,33 @@ Just for today I will be unafraid. Especially I will not be afraid to enjoy what
 只为了今天，我将制定一个计划，我也许不会严格的遵守它，但是我将拥有。我将避免两种错误：仓促行事和优柔寡断。
 只为了今天，我将独自静静地呆上半个小时放松一下。在这半个小时里，有时，我将尽力对生活得到一个更好的看法。
 只为了今天，我将不再害怕，尤其是不再害怕享受美丽的事物，相信我给予世界的，世界也将给予我。
+
+### 2018-03-08
+#### 原文
+If swallows go away, they will come back again. If willows wither, they will turn green again. If peach blossoms fade, they will flower again. But, tell me, you the wise, why should our days go by never to return? Perhaps they have been stolen by someone. But who could it be and where could he hide them? Perhaps they have just run away by themselves. But where could they be at the present moment?
+
+I don't know how many days I am entitled to altogether, but my quota of then is undoubtedly wearing away. Counting up silently, I find that more than 8000 days have already slipped away through my fingers. Like a drop of water falling off a needle point into the ocean, my days are quietly dripping into the stream of time without leaving a trace. At the thought of this, sweat oozes from my forehead and tears trickle down my cheeks. 
+
+What is gone is gone, what is to come keeps coming. How swift is the transition in between! When I get up in the morning, the slanting sun casts two or three squarish patches of light into my small room. The sun has feet too, edging away softly and stealthily. And, without knowing it, I am already caught in its revolution. Thus the day flows away through the sink when I wash my hands; vanishes in the rice bowl when I have my meal; passes away quietly before the fixed gaze of my eyes when I am lost in reverie. Aware of its fleeting presence, I reach out for it only to find it brushing past my outstretched hands. In the evening, when I lie on my bed, it nimbly strides over my body and flits past my feet. By the time when I open my eyes to meet the sun again, another day is already gone. I heave a sigh, my head buried in my hands. But, in the midst of my sighs, a new day is flashing past.
+
+Living in this world with its fleeting days and teeming millions, what can I do but waver and wander and live a transient life? What have I been doing during the 8000 fleeting days except wavering and wandering? The bygone days, like wisps of smoke, have been dispersed by gentle winds, and, like thin mists, have been evaporated by the rising sun. What traces have I left behind? No, nothing, not even gossamer-like traces. I have come to this world stark naked, and in the twinkling of an eye, I am to go back as stark naked as ever. However, I am taking it very much to heart: why should I be made to pass through this world for nothing at all?
+
+O you the wise, would you tell me please: why should our days go by never to return?
+
+#### 译文
+如果燕子离开，它们会再次回来。
+如果柳树枯萎，它们会再次变绿。
+如果桃花凋零，它们会再次开放。
+但是，聪明的你请告诉我，我们的日子为什么一去不复返了呢？也许它们是被谁偷走了，但是他是谁呢？他又能把它们藏在哪里呢？也许是它们自己逃走了，但是，他们现在又在哪里呢？
+
+我不知道我一共拥有多少日子，但是我的配额无疑是消耗殆尽了。默默地的数了数，我发现8000多天已经从我的指间溜走。就像针尖的一滴水掉入了大海，我的日子滴在了时间的河流中，没有留下一丝痕迹。想到这里，我的额头上渗出了汗水，眼泪顺着脸颊流了下来。
+
+过去的已经过去，要来的终究回来。这中间的过度太快了！当我早上醒来的时候，斜射的阳光把两三个正方形的光投射到我的小房间里。太阳也有脚，轻轻地悄悄地溜走了。在不知不觉中，我已经陷入了革命之中。于是，洗手的时候，日子从水盆里溜走；当我吃饭时，消失在碗里；当我发呆时，从我凝视的目光下静静地离去。当我意思到它转瞬即逝的存在，我伸手去寻找它，缺发现它掠过伸出的双手。在晚上，当我躺在床上，它敏捷地跨过我的身体，掠过我的脚。当我睁开眼睛迎接塌秧的时候，又一天已经过去了。我叹了一口气，将我的头埋在双手中。但是，在我的叹息中，新的一天正在闪过。
+
+生活在这个世界上，有着转瞬即逝的日子和无数的人，除了徘徊和彷徨，我还能做什么呢？在这8000个转瞬即逝的日志里，除了徘徊和彷徨我又做过什么呢？过去的日子，如轻烟，被微风吹散，像薄雾，被初升的太阳蒸发。我留下了什么痕迹？没有，什么都没有，甚至于连一条蛛丝般的痕迹都没有。我赤裸裸的来到这个世界，转眼间又将赤裸裸地回去了。然而，我很想知道：为什么要让我白白地走过这个世界？
+
+噢！聪明的你，请告诉我：为什么我们的日子一去不复返呢？
+
+
+
+
