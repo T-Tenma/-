@@ -1554,5 +1554,26 @@ O you the wise, would you tell me please: why should our days go by never to ret
 噢！聪明的你，请告诉我：为什么我们的日子一去不复返呢？
 
 
+### 2018-03-22
+#### 原文
+It is almost a definition of a gentleman to say he is one who never inflicts pain. This description is both refined and, as far as it goes, accurate. He is mainly occupied in merely removing the obstacles which hinder the free and unembarassed action of those about him, and he concurs with their movements rather than takes the initiative himself.
+
+His benefits may be considered as parallel to what are called comforts or conveniences in arrangements of a personal nature: like an easy chair or a good fire, which do their part in dispelling cold and fatigue, though nature provides both means of rest and animal heat without them.
+
+#### 译文
+绅士的定义大概就是说他从来不会带给他人痛苦。这种描述既精炼又准确。他的主要职责就是消除那些阻碍周围的人自如行动的障碍。而且他与其他人行动一致，而不是自己主动。
+
+他的好处可以被认为是个人性格安排中所谓的舒适或方便，就像安乐椅或一场好火，它们在驱除寒冷和疲劳方面起到了作用，尽管大自然同时提供了休息的方法和动物的体温。
+
+#### 参考译文
+It is almost a definition of a gentleman to say he is one who never inflicts pain. This description is both refined and, as far as it goes, accurate. He is mainly occupied in merely removing the obstacles which hinder the free and unembarassed action of those about him, and he concurs with their movements rather than takes the initiative himself.
+
+绅士是个从来都不会给人带来痛苦的人，这几乎成了绅士的定义。这一描述不仅精炼，而且现在看来也依然是准确的。他的主要职责就是消除那些阻碍周围的人自如行动的障碍。而且他与其他人行动一致，而不是采取主动。
+
+
+His benefits may be considered as parallel to what are called comforts or conveniences in arrangements of a personal nature: like an easy chair or a good fire, which do their part in dispelling cold and fatigue, though nature provides both means of rest and animal heat without them.
+
+他的益处相当于个人生活中给人们带来舒适或便利的事物，就像安乐椅或温暖的火，能够驱除寒冷和疲劳，尽管没有它们，大自然也能提供休息的场所，人也可以靠体温来保持温暖。
+
 
 
