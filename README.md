@@ -1576,4 +1576,24 @@ His benefits may be considered as parallel to what are called comforts or conven
 他的益处相当于个人生活中给人们带来舒适或便利的事物，就像安乐椅或温暖的火，能够驱除寒冷和疲劳，尽管没有它们，大自然也能提供休息的场所，人也可以靠体温来保持温暖。
 
 
+### 2018-03-29
+#### 原文
+Sometimes people come into your life and you come to realize that they were meant to be there, to serve some sort of purpose, teach you a lesson, or to help you to figure out who you are or who you want to become. You never know who these people may be, possibly your roommate, neighbor, co-worker, long-lost friend, lover, or even a complete stranger, but when you lock eyes with them ,you know in an instant that they will affect your life in some profound way.
 
+And sometimes things happen to you that may seem horrible, painful, and unfair at first, but in reflection you find that without overcoming these obstacles you would have never realized your potential, strength, will-power or heart Everything happens for a reason .Nothing happens by chance or by means of good luck. Illness, injury, love, brilliant achievements, and sheer stupidity all occur to test the limits, whatever they may be, life would be like a smoothly paved, straight, flat road to nowhere. It would be safe and comfortable, but dull and utterly pointless.
+
+#### 译文
+有时人们走进你的生活，你会意识到他们本应该在那里，为了某种目的，给你一个教训，或者帮助你弄清楚你是谁或者你想成为什么样的人。
+你永远不知道他们会是谁，可能是你的室友、邻居、同事、失散多年的朋友、爱人甚至完全是一个陌生人，但是当你和他们在一起的，你马上就会知道他们会以一种深刻的方式影响你的生活。
+
+有时发生在你身上的东西可能看起来是恐怖的、痛苦的、和不公平，但在反思的时候，你会发现如果没有克服这些障碍，你就永远不会意识到自己的潜力、力量、意志力或是心脏，一切都是有原因的。疾病、是个女孩、爱情、辉煌的成就和纯粹的愚蠢都是为了考验极限，不管它们是什么，生活就像一条平坦、笔直、平坦的道路。它既安全又舒适，但又单调又毫无意义。
+
+#### 参考译文
+Sometimes people come into your life and you come to realize that they were meant to be there, to serve some sort of purpose, teach you a lesson, or to help you to figure out who you are or who you want to become. You never know who these people may be, possibly your roommate, neighbor, co-worker, long-lost friend, lover, or even a complete stranger, but when you lock eyes with them ,you know in an instant that they will affect your life in some profound way.
+
+有时候，一些人进入你的生命，你马上知道他们是注定要出现的，他们的到来是为了达成某种目的，给你提供教益，帮助你认清自己以及自己想要成为怎样的人，你不会知道这些人是谁（很可能会是你的室友、邻居、同事、失散多年的朋友、爱人，甚至是素未谋面的陌生人），可是当你的目光锁定他们的那一刻，你就知道他们会给你的生命带来深远的影响。
+
+
+And sometimes things happen to you that may seem horrible, painful, and unfair at first, but in reflection you find that without overcoming these obstacles you would have never realized your potential, strength, will-power or heart Everything happens for a reason .Nothing happens by chance or by means of good luck. Illness, injury, love, brilliant achievements, and sheer stupidity all occur to test the limits, whatever they may be, life would be like a smoothly paved, straight, flat road to nowhere. It would be safe and comfortable, but dull and utterly pointless.
+
+有时候，发生在你身上的事情看似可怕、痛苦和不公平，但仔细一想，你就会发现，如果不克服这些障碍，你就不会意识到自己的潜能、力量、意志和决心。任何事的发生都是有原因的。没有事情是偶然出现或运气使然。疾病、伤痛、爱情、与成功失之交臂，以及彻彻底底的糊涂犯错，这些都是你对精神极限的考验。无论这些小小的考验是什么，没有了它们，生命就像是一条不知通往何处的平坦大道，纵然安全舒适，但却了然无趣、毫无意义。
