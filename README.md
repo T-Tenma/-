@@ -1597,3 +1597,21 @@ Sometimes people come into your life and you come to realize that they were mean
 And sometimes things happen to you that may seem horrible, painful, and unfair at first, but in reflection you find that without overcoming these obstacles you would have never realized your potential, strength, will-power or heart Everything happens for a reason .Nothing happens by chance or by means of good luck. Illness, injury, love, brilliant achievements, and sheer stupidity all occur to test the limits, whatever they may be, life would be like a smoothly paved, straight, flat road to nowhere. It would be safe and comfortable, but dull and utterly pointless.
 
 有时候，发生在你身上的事情看似可怕、痛苦和不公平，但仔细一想，你就会发现，如果不克服这些障碍，你就不会意识到自己的潜能、力量、意志和决心。任何事的发生都是有原因的。没有事情是偶然出现或运气使然。疾病、伤痛、爱情、与成功失之交臂，以及彻彻底底的糊涂犯错，这些都是你对精神极限的考验。无论这些小小的考验是什么，没有了它们，生命就像是一条不知通往何处的平坦大道，纵然安全舒适，但却了然无趣、毫无意义。
+
+
+### 2018-04-19
+#### 原文
+1. YOU DON’T OWE ANYONE AN EXPLANATION FOR YOUR LIVING SITUATION.
+Whether you are cohabiting with your ex-boyfriend or ex-girlfriend, crashing in different motel rooms across the country, or living with your parents for a while when you are past your twenties, you don’t have to explain yourself to anyone for who you live with and why if you don’t want to. If you are fully aware of your living situation, then it means you have your own reasons for being in that situation that are nobody else’s business.
+
+
+2. YOU DON’T OWE ANYONE AN EXPLANATION FOR YOUR LIFE PRIORITIES.
+
+You have your own ideas about the things that would make you and your loved ones truly comfortable and happy, which is your main priority. Since we are all unique individuals with different values, dreams and aspirations, your core priorities will be different from the next person’s. You don’t owe anyone an explanation for what you determine is your core priority in life. That is your personal business not other people’s business.
+
+#### 译文
+1. 你不必给任何人解释你的居住情况.
+无论你是和你的前男友或者前女友同居，或者是沉沦在全国的汽车旅馆，或者当你刚过20的时候与你的父母住在一起，只要你不愿意，你都不必向任何人解释你和谁住在一起以及为什么。如果你完全清楚自己的居住情况，那么代表你又自己的理由处于这种情况，而这与其他人一毛钱关系也没有。
+
+2.你不必给任何人解释你的生活重心。
+让自己和自己爱人真正的感到舒适和高兴，你拥有自己的想法，这就是你的生活重心。因为我们都是独一无二的个体，拥有着不同的价值观，梦想以及愿望，你的生活重心也与他人不一样。你不必给任何人解释什么是你在生活重心的决定。那是你的私事，与他人无关。
